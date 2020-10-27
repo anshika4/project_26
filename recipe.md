@@ -12,5 +12,5 @@ Then Add 2 tbsp chopped capsicum, mix and mash it well. Cover with lid, cook for
 
 Garnish it with 1 tbsp chopped coriander leaves, mix it well.
 
-Serve it hot with pav and chopped onions.
+Serve it with hot pav and chopped onions.
 
